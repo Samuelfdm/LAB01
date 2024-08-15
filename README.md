@@ -1,1 +1,1 @@
-Archivo de prueba 2 samuel
+ARCHIVO CORREGIDO 2DO CONFLICTO - SAMUEL
