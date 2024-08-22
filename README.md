@@ -1,3 +1,3 @@
-
-Tercer punto, actualizacion Santiago
-TERCER PUNTO - SAMUEL
+INTEGRANTES
+- Samuel Felipe Díaz Mamanche
+- Santiago Silva Roa
